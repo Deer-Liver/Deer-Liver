@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on whatever, but im not the best
 - 📫 How to reach me deerlivered@gmail.com (delivered lols)
-- 😄 Pronouns: she/her
+- 😄 Pronouns: she/they
 - ⚡ Fun fact: A X O L O T L
 
 <!---
