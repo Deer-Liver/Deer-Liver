@@ -2,7 +2,7 @@
 - 👀 I’m interested in whatever the wind directs me to
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on whatever, but im not the best
-- 📫 How to reach me deerlivered@gmail.com (delivered lols)
+- 📫 How to reach me deerliver.contact@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: A X O L O T L
 
