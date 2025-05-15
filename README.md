@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Deer-Liver
 - 👀 I’m interested in whatever the wind directs me to
-- 🌱 I’m currently learning C
+- 🌱 I’m currently learning C & Java
 - 💞️ I’m looking to collaborate on whatever, but im not the best
 - 📫 How to reach me deerliver.contact@gmail.com
 - 😄 Pronouns: he/him
